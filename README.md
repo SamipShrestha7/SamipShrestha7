@@ -2,7 +2,7 @@
 - 👀 I’m interested in Frontend Desiging.
 - 🌱 I’m currently learning React.
 - 💞️ I’m looking to collaborate on nothing.
-- 📫 How to reach me shresthasamip35@gmail.com shresthasamip36@gmail.comshresthasamip38@gmail.com shresthasamip39@gmail.com .
+- 📫 How to reach me shresthasamip35@gmail.com shresthasamip36@gmail.com shresthasamip38@gmail.com shresthasamip39@gmail.com .
 - 😄 Pronouns: ...
 - ⚡ Fun fact: love to learn New Things.
 
